@@ -1,6 +1,8 @@
 # hoodies
 FiveM Hoodies
 
+Join our discord! https://dsc.gg/smpscripts
+
 Fivem FURTBOKEM, ESCAPE6 Hoodies
 
 
